@@ -1,1 +1,1 @@
-https://kevin715855.github.io/doiMoiST/index.html
+https://kevin715855.github.io/doiMoiST/home.html
